@@ -1,2 +1,2 @@
-- "If everywhere you go it smells like shit, maybe it's time to check your own shoes." - *Anonymous*
-- **Deep** - "Everyone in your life will have a last day with you. And you don't even know when it'll be." - *Anonymous*
+- "If everywhere you go it smells like shit, maybe it's time to check your own shoes" - *Anonymous*
+- **Deep** - "Everyone in your life will have a last day with you. And you don't even know when it'll be"   *Anonymous*
